@@ -1,0 +1,1 @@
+merhaba kafam karıştı:)
